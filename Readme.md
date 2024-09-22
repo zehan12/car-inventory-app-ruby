@@ -1,0 +1,1 @@
+https://salmacoder.hashnode.dev/create-your-own-car-inventory-app-with-ruby-a-beginners-guide?source=more_articles_bottom_blogs
